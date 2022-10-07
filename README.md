@@ -1,2 +1,2 @@
 # reimagined-carnival
-Hack-2022
+Wack-2022
